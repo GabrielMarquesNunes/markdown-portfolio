@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[Jojo's Bizarre Adventures Wiki](https://jojo.fandom.com/wiki/Main_Page)
